@@ -1,6 +1,3 @@
-Addressing the whole Val situation,
-https://docs.google.com/document/d/1BjYiYQLbTvfcj1bwPtvJDy9TxuBF1mLoUvzy7cQq-O4/edit?usp=sharing
-
  follow them :
  https://github.com/solitaryconfinement ᰔ
  https://github.com/oethre ᰔ                               
