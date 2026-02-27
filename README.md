@@ -7,3 +7,11 @@ i am a minor, 17 (this year)
 
   there is more info on my strawpage, pls check that out if you're curious about me or just interested in trying to get to know me! 
              have a good day
+
+
+
+oh, and pls follow @protectioncharm
+     i wanna help boost their account so they'll gain more follows!
+ 
+  
+*  stay safe, and remember that you matter, always <3
