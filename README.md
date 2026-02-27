@@ -10,7 +10,7 @@ i am a minor, 17 (this year)
 
 
 
-oh, and pls follow @protectioncharm
+oh, and pls follow https://github.com/protectioncharm
      i wanna help boost their account so they'll gain more follows!
  
   
