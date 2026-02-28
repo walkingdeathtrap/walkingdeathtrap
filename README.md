@@ -15,3 +15,4 @@ oh, and pls follow https://github.com/protectioncharm
  
   
 *  stay safe, and remember that you matter, always <3
+* i follow any g-hub that i see, whisp me anytime if you want a follow
