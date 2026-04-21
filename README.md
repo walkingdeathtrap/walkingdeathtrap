@@ -6,8 +6,9 @@ helloloo, i go by lea
 i am a minor, 17 (this year)
   i have had past issues with old friends, if you're friends with someone i feel unsafe around,  i will not associate with you.
     speaking of which, i am actively being harassed. one of my past friends are going around and spreading misinformation about me, and i can't do much about it.
-  there is more info on my strawpage, pls check that out if you're curious about me or just interested in trying to get to know me! 
-             have a good day
+  
+besides that, there is more info on my strawpage, pls check that out if you're curious about me or just interested in trying to get to know me! 
+             have a good day ^_^
 
 
 
