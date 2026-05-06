@@ -1,20 +1,15 @@
  follow them :
  https://github.com/oethre ᰔ                               
-![Alt text](https://i.pinimg.com/originals/8a/29/76/8a29762bfbf71680814eaed7b9df52f5.gif)
+![Alt text](https://i.pinimg.com/originals/37/9f/a4/379fa4c33b0a0076a7f301cb9b1f7dd7.gif)
 
-helloloo, i go by lea
-i am a minor, 17 (this year)
-  i have had past issues with old friends, if you're friends with someone i feel unsafe around,  i will not associate with you.
-    speaking of which, i am actively being harassed. one of my past friends are going around and spreading misinformation about me, and i can't do much about it.
-  
-besides that, there is more info on my strawpage, pls check that out if you're curious about me or just interested in trying to get to know me! 
-             have a good day ^_^
+hii!! thank you for checking out my page ^_^
 
+i am very open to friends, although i'm very awkward at first, so give me time.
+ i usually hang out at main map now, but you might see me elsewhere at times 
 
-
-oh, and pls follow https://github.com/protectioncharm
-     i wanna help boost their account so they'll gain more follows!
  
-  
-*  stay safe, and remember that you matter, always <3
-* i follow any g-hub that i see, whisp me anytime if you want a follow
+ if you're friends with people i do not like because of encounters between me and them, then i may not be as open/may not interact with you.
+   
+   with that stated, please don't go out of your way to bug me about my situation with another person either!! if i am comfortable with filling you in, then i will do so.
+
+  ![Alt text](https://i1-e.pinimg.com/736x/0a/37/3d/0a373d021111e5b148b20f0b1ea914a6.jpg)
